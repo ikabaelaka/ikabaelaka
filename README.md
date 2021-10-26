@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Isaac Elaka Kaba, a Pharmacy Honors student at the University of Toledo.
+- 👀 I’m interested in developing a career, which combines the University Professorship, Research, and Pharmacist works, with a view to serving humanity in general and maintaining my commitment to the Congolese society.
+- 🌱 I’m currently learning Pharmacy and Pharmaceutical Sciences.
+- 💞️ I’m looking to collaborate on scientific projets related to Pharmaceutical field.
+- 📫 I am on LinkedIn, Twitter, Researchgate, etc.
